@@ -1,1 +1,1 @@
-kapali
+acik
